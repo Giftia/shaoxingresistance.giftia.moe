@@ -1,4 +1,4 @@
-# Official Website of Ingress Hangzhou Resistance
+# Official Website of Ingress Shaoxing Resistance
 
 + Still under development
 
